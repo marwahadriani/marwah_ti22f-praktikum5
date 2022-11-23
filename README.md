@@ -1,1 +1,0 @@
-# marwah_ti22f-praktikum5
